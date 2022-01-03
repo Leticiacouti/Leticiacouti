@@ -1,4 +1,4 @@
-## Olá! Eu sou a Letícia Coutinho
+## Olá! Eu sou a Letícia, bem vindo ao meu GitHub 😊
 
 <div align="center">
   <a href="https://github.com/Leticiacouti">
