@@ -1,4 +1,4 @@
-## Olá! Eu sou a Letícia, bem vindo ao meu GitHub 😊
+## Olá, tudo bem? Eu sou a Letícia! bem vindo(a) ao meu perfil GitHub 😊
 
 <div align="center">
   <a href="https://github.com/Leticiacouti">
